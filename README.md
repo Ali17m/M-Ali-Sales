@@ -7,7 +7,7 @@ I specialize in scaling outbound sales teams and turning complex SaaS campaigns 
 ---
 
 ### 🚀 Sales Expertise & Stats
-- 💰 **$200K+** Earned on Upwork with a 96% Job Success Score.
+- 💰 **$200K+** Earned on Upwork with a 100% Job Success Score.
 - 📈 **SaaS Growth:** Tripled revenue pipelines for various global clients.
 - 👥 **Leadership:** Managed teams of 20+ SDRs and created robust SOPs.
 - 🎓 **Education:** Pursuing MBA in Entrepreneurship at NUST.
